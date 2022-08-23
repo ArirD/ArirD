@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ArirD
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning spanish
